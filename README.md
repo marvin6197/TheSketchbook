@@ -1,5 +1,7 @@
 *The Sketchbook*
 
-More detail to come soon ...
-
-Omar ist lustig
+* Abdullah Mulaj
+* Frederike Barth
+* Omar Schure
+* Marvin Spiegel
+* (Constantin Olbertz)
